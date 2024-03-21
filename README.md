@@ -1,4 +1,4 @@
-👋 Hi, I’m @CoderDew35
+👋 Hi, I’m Şebnem,
 
 👀 I’m interested in technology, innovation, diverse cultures, and humanitarian causes.
 
