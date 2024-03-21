@@ -8,7 +8,7 @@
 
 📫 How to reach me: Feel free to connect with me on LinkedIn or reach out via email at sebnemkosker3500@gmail.com
 
-😄 Pronouns: She/Her
+😄 Pronouns: She / Her
 
 ⚡ Fun fact: I have a collection of vintage board games from around the world, and I love hosting game nights where friends gather to enjoy some friendly competition and laughter!
 
